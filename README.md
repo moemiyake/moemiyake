@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @moemiyake
-- 👀 I’m interested in sleep
+- 👀 I’m interested in stroll
 - 🌱 I’m currently learning WEB design
-- 💞️ I’m looking to collaborate on composer & programmer & desiner
+- 💞️ I’m looking to collaborate on desiner &programmer & composer
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
